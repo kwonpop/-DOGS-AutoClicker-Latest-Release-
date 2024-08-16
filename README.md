@@ -1,0 +1,1 @@
+# -DOGS-AutoClicker-Latest-Release-
